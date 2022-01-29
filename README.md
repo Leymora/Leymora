@@ -1,4 +1,4 @@
-👋 Hi, I'm Leymora 💻 🎸 🎹 🎨
+👋 Hi, I'm Leymora 
 
 
 
