@@ -1,10 +1,10 @@
-👋 Hi, I'm Woosh 💻 🎸 🎹 🎨
+👋 Hi, I'm Leymora 💻 🎸 🎹 🎨
 
 
 
-Here's my art and stuff 🔗 https://www.instagram.com/artbywoosh/
+Here's my art and stuff 🔗 https://www.instagram.com/leymora/
 
 <!---
-SentimentalWoosh/SentimentalWoosh is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Leymora/Leymora is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
